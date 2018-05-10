@@ -1,0 +1,4 @@
+# The-Labour-Alliance-Uganda
+The Labour Alliance Uganda represents Employers and Workers forums in which Labour movements in and around Uganda can connect, debate, share knowledge experiences and enforce compliance and strict adherence to labour standards. The Alliance links trade unionists, labour activists, government officials, think-tank, private sector and everyone else interested in descent works into possibilities to network with thousands of trade unionists and labour activism from around the world.
+Vision: To be a leading Alliance Labour Organization in Africa in meeting and managing challenges associated with globalization.
+Mission: To increase the intellectual and strategic capacity of workers organizations and establish stronger working relationships between trade unions, employers, employees, the ILO, sports personalities and the scientific community.
